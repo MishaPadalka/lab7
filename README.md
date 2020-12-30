@@ -1,0 +1,1 @@
+# lab7 Korkishko V. IS-82
